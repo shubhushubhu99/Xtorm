@@ -57,12 +57,10 @@ pkg upgrade
 
 ## Authors
 
-DARK SQUAD (ANONYMOUS)
+DARK SQUAD (ANONYMOUS abhi)
 
-* AUTHER: GUCCIFER SHUBHAM
-* WHATSAPP: +91 9485875345
-* FACEBOOK: https://www.facebook.com/shubhushubhu99
-* INSTAGRAM: https://www.instagram.com/shubhushubhu99
-* TWITER: https://twitter.com/shubhushubhu99
-* YOUTUBE: https://www.youtube.com/channel/UCAopWtmrflBhznkOxHhSdIg
+* AUTHER: ANONYMOUS ABHI 
+* WHATSAPP: +91 7549644258
+* INSTAGRAM: https://www.instagram.com/abhi_abhi007_abhi
+
 
