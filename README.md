@@ -60,7 +60,6 @@ pkg upgrade
 DARK SQUAD (ANONYMOUS)
 
 * AUTHER: GUCCIFER SHUBHAM
-* WHATSAPP: +91 9485875345
 * FACEBOOK: https://www.facebook.com/shubhushubhu99
 * INSTAGRAM: https://www.instagram.com/shubhushubhu99
 * TWITER: https://twitter.com/shubhushubhu99
